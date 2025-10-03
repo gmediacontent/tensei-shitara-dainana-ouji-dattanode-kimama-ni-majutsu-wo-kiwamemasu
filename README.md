@@ -1,0 +1,1 @@
+# tensei-shitara-dainana-ouji-dattanode-kimama-ni-majutsu-wo-kiwamemasu
